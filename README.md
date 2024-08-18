@@ -40,6 +40,20 @@ and banned me!. after a while i got an freind request from a person named Zeptif
 
 ---------------------------------------------------------------------
 
-> Aligations without Screenshots:
+<div style="background-color: #f7f7f7; padding: 20px; border-radius: 8px; font-family: Arial, sans-serif;">
+    <h2 style="color: #333;">Allegations without Screenshots:</h2>
+    <p style="color: #555; font-size: 14px;">
+        The following allegations are true, but we don't have any screenshots to prove it. It's up to you whether you want to believe our word.
+    </p>
+    <h3 style="color: #444; margin-top: 20px;">Allegations from Vatos' Side:</h3>
+    <ul style="color: #555; font-size: 14px; line-height: 1.6;">
+        <li>I taught this Nigga how to code.</li>
+        <li>Bro called me "teacher".</li>
+        <li>Negro asked me every week to skid things from my GitHub.</li>
+        <li>Bro used <code>subprocess</code> for a menu and didn't know how to use even <code>elif</code>.</li>
+        <li>Bro didn't know how to properly use <code>self</code> in a class even though he had it in his code (ChatGPT).</li>
+        <li>I defended Nigga when he got shit talked even though his code was ass.</li>
+        <li>He hated on people in DMs he was normally friends with (Novex, for example).</li>
+    </ul>
+</div>
 
-The following allegations are true, but we don't have any screenshots to prove it. It's up to you whether you want to believe our word
