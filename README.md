@@ -10,7 +10,7 @@ and banned me!. after a while i got an freind request from a person named Zeptif
 
 > Screenshot Proofs:
 
-![Asking Novex To Skid Nexus Raider](https://media.discordapp.net/attachments/1268968730688487454/1274682444649594923/image.png?ex=66c32409&is=66c1d289&hm=9b81fc40ae96a9a0bb8c1824ddf0ee9ce7db609e23ae33e9af9e576ea7b043f9&=&format=webp&quality=lossless&width=848&height=604) Bro asked novex to skid Nexus Raider Such A Python Senpai!
+<img src="https://media.discordapp.net/attachments/1268968730688487454/1274682444649594923/image.png?ex=66c32409&is=66c1d289&hm=9b81fc40ae96a9a0bb8c1824ddf0ee9ce7db609e23ae33e9af9e576ea7b043f9&=&format=webp&quality=lossless" alt="Image" width="424" height="302"> Bro asked novex to skid Nexus Raider Such A Python Senpai!
 
 ![Skidding Nexus Joiner Of Raider](https://media.discordapp.net/attachments/1268968730688487454/1274682530716450898/image.png?ex=66c3241d&is=66c1d29d&hm=ea75b76253b6e3b5adc96317c3883de4adfb503c723df42b7884763eeea0bedf&=&format=webp&quality=lossless&width=824&height=353)
 
