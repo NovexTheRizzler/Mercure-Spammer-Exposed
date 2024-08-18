@@ -57,3 +57,15 @@ and banned me!. after a while i got an freind request from a person named Zeptif
     </ul>
 </div>
 
+----------------------------------------------------------------------
+</p>
+    <h3 style="color: #444; margin-top: 20px;">Allegations from Novex' Side:</h3>
+    <ul style="color: #555; font-size: 14px; line-height: 1.6;">
+        <li>I gave him all my raider code so he can finish his one.</li>
+        <li>He used to call me "daddy".</li>
+        <li>Bro told me he was gonna quit 4 time but never did and join packcom</li>
+        <li>Bro asked me if he can use my <code>Keyauth</code>.</li>
+        <li>Today bro got me in a gc and started chatpacking me for no reason 💀.</li>
+    </ul>
+</div>
+
