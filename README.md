@@ -10,7 +10,7 @@ and banned me!. after a while i got an freind request from a person named Zeptif
 
 > Screenshot Proofs:
 
-![Nexus-Raider-Skid](LINK)
+![Asking Novex To Skid Nexus Raider](https://media.discordapp.net/attachments/1268968730688487454/1274682444649594923/image.png?ex=66c32409&is=66c1d289&hm=9b81fc40ae96a9a0bb8c1824ddf0ee9ce7db609e23ae33e9af9e576ea7b043f9&=&format=webp&quality=lossless&width=848&height=604) Bro asked novex to skid Nexus Raider Such A Python Senpai!
 
 > Aligations without Screenshots:
 
