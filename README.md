@@ -12,6 +12,10 @@ and banned me!. after a while i got an freind request from a person named Zeptif
 
 ![Asking Novex To Skid Nexus Raider](https://media.discordapp.net/attachments/1268968730688487454/1274682444649594923/image.png?ex=66c32409&is=66c1d289&hm=9b81fc40ae96a9a0bb8c1824ddf0ee9ce7db609e23ae33e9af9e576ea7b043f9&=&format=webp&quality=lossless&width=848&height=604) Bro asked novex to skid Nexus Raider Such A Python Senpai!
 
+![Skidding Nexus Joiner Of Raider](https://media.discordapp.net/attachments/1268968730688487454/1274682530716450898/image.png?ex=66c3241d&is=66c1d29d&hm=ea75b76253b6e3b5adc96317c3883de4adfb503c723df42b7884763eeea0bedf&=&format=webp&quality=lossless&width=824&height=353)
+
+![Getting Own Customers Tokens?](https://media.discordapp.net/attachments/1268968730688487454/1274683575643668632/image.png?ex=66c32516&is=66c1d396&hm=089cb349e316968e3f3c967711865b94be20a8ca4ae26dcd8f84118d77cf658a&=&format=webp&quality=lossless&width=1441&height=282)
+
 > Aligations without Screenshots:
 
 The following allegations are true, but we don't have any screenshots to prove it. It's up to you whether you want to believe our word
