@@ -1,5 +1,6 @@
 # Zeptifer (axeqq) Exposed ~ Mercure Raider
 # Note: if yall are an owner please repost this so everyone can see!
+# Warning: Feel free to skid this goofy tool cause its not mine!
 This is a repository of all screenshots and axeqqs skidded raider to prove he cant code!
 
 Contributors: `VatosV2 (vatos.py)` & `NovexTheRizzler (symtomers)`
